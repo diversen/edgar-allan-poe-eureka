@@ -1,3 +1,21 @@
+The Project Gutenberg EBook of Eureka:, by Edgar A. Poe
+
+This eBook is for the use of anyone anywhere at no cost and with almost
+no restrictions whatsoever. You may copy it, give it away or re-use it
+under the terms of the Project Gutenberg License included with this
+eBook or online at www.gutenberg.org
+
+Title: Eureka: A Prose Poem
+
+Author: Edgar A. Poe
+
+Release Date: April 18, 2010 \[EBook \#32037\]
+
+Language: English
+
+Character set encoding: UTF-8
+
+\*\*\* START OF THIS PROJECT GUTENBERG EBOOK EUREKA: \*\*\*
 
 Produced by Meredith Bach, Irma Spehar and the Online Distributed
 Proofreading Team at http://www.pgdp.net (This file was produced from

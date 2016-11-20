@@ -1,1 +1,0 @@
-# edgar-allan-poe-eureka
